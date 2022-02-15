@@ -1,6 +1,6 @@
 - 👋 Hi, I'm [REDACTED]
 - 👀 CSE undergrad
-- 💞️ I’m looking to collaborate on ¯\_(ツ)_/¯ (you tell me)
+- 🤝 I’m looking to collaborate on ¯\_(ツ)_/¯ (you tell me)
 - 📫 Reach me on telegram @prakyy
 
 <!---
