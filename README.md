@@ -1,4 +1,4 @@
-- 👋 Hi, I'm [REDACTED]
+- 👋 Hey, you!
 - 👀 CSE undergrad
 - 🤝 I’m working on ¯\_(ツ)_/¯ (why would I tell you)
 - 📫 Reach me on telegram @prakyy
